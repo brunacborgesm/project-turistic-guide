@@ -1,1 +1,0 @@
-# project-turistic-guide
